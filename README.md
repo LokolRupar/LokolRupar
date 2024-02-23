@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LokolRupar
 - 👀 I’m interested in Game engines
-- 🌱 I’m currently learning in game studios
+- 🌱 I’m currently learning in school
 - 💞️ I’m looking to collaborate on game studios
 - 📫 How to reach me @Shprot280 (Telegram)
 - 😄 Pronouns: He
